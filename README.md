@@ -1,3 +1,1 @@
-# 18gssidhu10.github.io
-
-##Profielwerkstuk
+#Profielwerkstuk Gurkarmandeep Singh Sidhu
