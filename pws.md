@@ -1,5 +1,5 @@
 ##  Modding In-Game Properties Of Super Mario Bros. through Game Genie Codes
-
+![voorkant cropped pws](https://github.com/18gssidhu10/18gssidhu10.github.io/assets/151066156/77068ec0-5125-4655-832b-88b3fbb14ba1)
 ## Inleiding
 
 ### Hoe kwam ik op het idee om dit te doen?
